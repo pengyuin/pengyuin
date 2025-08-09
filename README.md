@@ -12,7 +12,7 @@ multi<strong>fandom</strong>　　ᛝ　　i　<strong>c + h</strong>　freely
 mains　interests　are　<strong>txt</strong>　 whc　sg　+more
 </p>
 <p align="center">
-comf : hwang jun-ho, oh beomseok, choi soobin+huening kai
+comf　:　hwang jun-ho,　oh beomseok
 </p>
 <p align="center">
 <a href="https://rentry.co/sardine">ext</a>　.　<a href="https://discord.com/users/864853500185935883">discord</a>　.　<a href="https://sigma.atabook.org">atabook</a>
