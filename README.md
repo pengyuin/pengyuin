@@ -10,6 +10,8 @@
 multi<strong>fandom</strong>　　ᛝ　　i　<strong>c + h</strong>　freely
 <p align="center">
 mains　interests　are　<strong>txt</strong>　 whc　sg　+more
+</p>
+<p align="center">
 comf : hwang jun-ho, oh beomseok, choi soobin+huening kai
 </p>
 <p align="center">
